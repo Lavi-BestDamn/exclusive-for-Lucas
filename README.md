@@ -7,13 +7,13 @@
 A fan of **Christopher Nolan**. I thrive on stories that challenge my perception of time and reality.
 
 * **Top Picks:** *Inception*, *The Matrix*, *Interstellar*. 
-* **Guilty Pleasure:** *The Devil Wears Prada*. "That's all."
+* **Humanity & Emotion:** *The Devil Wears Prada*, *Leon: The Professional*, *Flipped*
 
 ### 🎵 The Life Soundtrack
 
 Curating my days through a mix of classic and contemporary beats.
 
-* **C-Pop:** Fish Leong, Stefanie Sun, Jay Chou, JJ Lin, David Zee Tao...
+* **C-Pop:** Fish Leong（梁静茹）, Stefanie Sun（孙燕姿）, Jay Chou（周杰伦）, JJ Lin（林俊杰）, David Zee Tao（陶喆）...
 * **Western:** Avril Lavigne, Ariana Grande, The Chainsmokers, Taylor Swift...
 
 ### 🎮 Tactical & Tenacious
@@ -29,3 +29,4 @@ Drawn to coastal horizons and the rhythmic energy of the ocean. My mission is to
 
 ---
 "Keep grinding, stay caffeinated, and always watch the credits." ☕️🌊
+**“我这辈子最擅长两件事：在小事上瞎操心，在大事上找台阶下。”** 🏃‍♂️💨
